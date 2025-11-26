@@ -8,9 +8,9 @@ Qain1 / Haicheng is a crypto scammer in hong kong.
 
 He uses these profiles on localcoinswap.com
 
-https\://localcoinswap.com/profile/QIAN1
+[https://localcoinswap.com/profile/QIAN1](https://localcoinswap.com/profile/QIAN1)
 
-https\://localcoinswap.com/profile/Haicheng
+[https://localcoinswap.com/profile/Haicheng](https://localcoinswap.com/profile/Haicheng)
 
 Qian1 / Haicheng has a number of accounts he uses to steal money from buyers.
 
@@ -26,7 +26,7 @@ Zelle 734-882-1907 Will Kennedy ❌️
 
 Zelle 334-616-9033 Maksim Shevchenko ❌️
 
-Zelle carlottarayford6803\@outlook.com Amy Jane Stewart ❌️
+Zelle [carlottarayford6803@outlook.com](mailto:carlottarayford6803@outlook.com) Amy Jane Stewart ❌️
 
 Bank Name Lead 
 Bank Bank Address 1801 Main St., Kansas City, MO 64108 
