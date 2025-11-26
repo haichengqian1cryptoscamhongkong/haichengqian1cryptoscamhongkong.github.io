@@ -1,8 +1,8 @@
 \*\*Do not deal with this vendor, He's a thief.\*\*
 
-![Alt text](./images1.png)
+![Alt text](images1.png)
 
-![Alt text](./images2.png)
+![Alt text](images2.png)
 
 Qain1 / Haicheng is a crypto scammer in hong kong.
 
