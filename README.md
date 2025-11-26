@@ -8,9 +8,9 @@ Qain1 / Haicheng is a crypto scammer in hong kong.
 
 He uses these profiles on localcoinswap.com
 
-\[https\://localcoinswap.com/profile/QIAN1]
+https\://localcoinswap.com/profile/QIAN1
 
-\[https\://localcoinswap.com/profile/Haicheng]
+https\://localcoinswap.com/profile/Haicheng
 
 Qian1 / Haicheng has a number of accounts he uses to steal money from buyers.
 
