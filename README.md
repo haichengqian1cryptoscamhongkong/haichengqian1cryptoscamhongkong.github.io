@@ -44,6 +44,10 @@ Quickly use any bulk gift card code✅✅✅💵Cash Pickup💵/🥇Gold Pickup�
 
 Quickly use any bulk gift card code✅✅✅💵Cash Pickup💵/🥇Gold Pickup🥇-------whatsapp：+852 9720 6974------📞 Tele：@QIAN16 Contact me. Come back here There are many scammers trying to be us, please get my confirmation here ❌️
 
+\*\*Haicheng\*\*
+
+Quickly use any bulk gift card code✅✅✅💵Cash Pickup💵/🥇Gold Pickup🥇-------whatsapp：+852 5721 8865------📞 Tele：@yyying8 Contact me. Come back here There are many scammers trying to be us, please get my confirmation here
+
  
 
 \*\*Do not deal with this vendor. He's a thief.\*\*
