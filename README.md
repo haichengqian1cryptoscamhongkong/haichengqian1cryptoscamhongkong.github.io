@@ -26,6 +26,8 @@ Zelle 734-882-1907 Will Kennedy ❌️
 
 Zelle 334-616-9033 Maksim Shevchenko ❌️
 
+Zelle korinnacortis6476@outlook.com Roger Lee Hawthorne ❌
+
 Zelle [carlottarayford6803@outlook.com](mailto:carlottarayford6803@outlook.com) Amy Jane Stewart ❌️
 
 Bank Name Lead 
